@@ -3,7 +3,7 @@
 Sou formada em **Publicidade e Propaganda** e atualmente moro nos Estados Unidos, onde estou vivenciando um intercâmbio cultural e trabalhando como **Criadora de Conteúdo (UGC) freelancer**.  
 Paralelamente, estou cursando o **primeiro semestre de Ciência da Computação**, com foco em **Análise de Sistemas, lógica de programação e desenvolvimento de soluções digitais aplicadas ao marketing**.
 
----
+
 
 ## 🚀 Minha Experiência
 Unindo minha experiência criativa com a base técnica, desenvolvo conteúdos autênticos e estratégias digitais orientadas a resultados. Já entreguei **mais de 60 projetos UGC**, trabalhando com **roteirização, gravação, edição e storytelling** para marcas.
