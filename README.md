@@ -8,7 +8,7 @@ Paralelamente, estou cursando o **primeiro semestre de Ciência da Computação*
 ## 🚀 Minha Experiência
 Unindo minha experiência criativa com a base técnica, desenvolvo conteúdos autênticos e estratégias digitais orientadas a resultados. Já entreguei **mais de 60 projetos UGC**, trabalhando com **roteirização, gravação, edição e storytelling** para marcas.
 
----
+
 
 ## 🌟 Áreas de Interesse
 Atuar em áreas que integrem tecnologia e marketing, como:  
@@ -19,7 +19,7 @@ Atuar em áreas que integrem tecnologia e marketing, como:
 - 🛠 **Desenvolvimento de Plataformas e Aplicativos para Marketing Digital**  
 - 🎨 **UX/UI Design com foco em conversão**
 
----
+
 
 ## 💡 Habilidades
 - Produção de vídeos UGC  
